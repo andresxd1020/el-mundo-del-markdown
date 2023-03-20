@@ -3,7 +3,7 @@
 
 🤖
 ### estoy haciendo un bootcamp de Guillermo Rodas👻
-soy de**Medellin, Colombia** vivo en San Jóse del Nus, tengo 16 años curso el grado 11 y me encanta e l**mundo de la programacóon**
+soy de **Medellin, Colombia** vivo en San Jóse del Nus, tengo 16 años, curso el grado 11 y me encanta el **mundo de la programacóon** me gusta mucho este campo y desearia con la ayuda de Dios realizarlo como profesión.
 
 
 🎯Mi objetivo es obtener _experiencia en el área de programación, desarrollo de aplicaciones y sitios web_, etc. Tengo amplias habilidades de comunicación oral y  trabajo en equipo, así como también poseo una capacidad de aprendizaje veloz.🎖
